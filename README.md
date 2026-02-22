@@ -1,1 +1,1 @@
-www ecuraíz.com
+ECUADOR ALMA ANDINA.COM
