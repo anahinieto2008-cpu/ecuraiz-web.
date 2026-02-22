@@ -1,1 +1,1 @@
-# ecuraiz-web.
+www ecuraíz.com
